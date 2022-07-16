@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Niharika you can call me Niha :) 
-- 👀 I’m interested in Web development <3
+- 👀 I’m interested in learning new tools and technologies <3
