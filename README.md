@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Niharika you can call me Niha :) 
+- 👋 Hi, I’m Niharika!
 - 👀 I’m interested in learning new tools and technologies <3
